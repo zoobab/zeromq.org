@@ -20,8 +20,11 @@ Monday 3rd Tuesday 4th February 2020, from 9am to late in the night :-)
 #### Where?
 
 Chez Hugo Hackerspace
+
 Rue de Laeken 116
+
 1000 Brussels
+
 Belgium
 
 #### Drinks and food
